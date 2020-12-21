@@ -1,2 +1,2 @@
 # 5. hodina - Lodě
-[Video záznam #1](https://youtu.be/-OzlJDlHC5g)
+[Video záznam](https://youtu.be/7-cV5jMxeUU)
